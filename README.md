@@ -1,5 +1,5 @@
 - 👋 Hi, I’m ThatWeirdTechGuy!
-- 👀 I own many websites, programs, games, etc (qwed.ga, seven security programs, virtualcurrecncy.5v.pl, etc)
+- 👀 I own many websites, programs, games, etc (qwed.ga, seven security programs, virtualcurrency.5v.pl, etc)
 - 🌱 I have my own YouTube channel called ThatWeirdTechGuy!
 - 🌟 Like my projects? Give some stars!
 
